@@ -1,5 +1,5 @@
 ## Return and Refund Policy
-**Last updated: [Date]**
+**Last updated: 05/04/2026**
 Thank you for shopping at **shop multitouch.com**.
 If, for any reason, you are not completely satisfied with a purchase, we invite you to review our policy on refunds and returns.
 ### 1. Returns
